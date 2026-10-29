@@ -1,1 +1,3 @@
-# Duah Obeng Emmanuel.Alog.BDE
+# Duah Obeng Emmanuel.Alog.BDE 
+## About Me
+

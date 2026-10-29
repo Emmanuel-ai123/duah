@@ -1,1 +1,1 @@
-Duah Obeng Emmanuel.alog.bde
+Duah Obeng Emmanuel.Alog.BDE
